@@ -1,3 +1,3 @@
 ### Hi there 👋
-Computer Science Major | Security Researcher | Software Engineer
+Computer Science Masters | Security Researcher | Software Engineer
 
